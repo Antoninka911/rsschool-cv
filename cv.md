@@ -1,2 +1,3 @@
 Antanina Losik
-Antanina Ivanovna Losik
+
+Antanina (Antoninka911)
